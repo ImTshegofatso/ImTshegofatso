@@ -58,7 +58,7 @@ Firefox is not a fox.
 
 I’m always open to connecting with fellow tech enthusiasts, professionals, and organizations. Whether you have a project idea, need collaboration, or just want to chat about the latest in tech, feel free to reach out! You can connect with me on LinkedIn www.linkedin.com/in/tshegofatso-nkosi-77631b290
 
- or drop me an email at nkositshegofatso750@gmail.com.
+ or drop me an email at TR.Nkosi@outlook.com.
 
 Together, we can create a better future through technology.
 <!---
